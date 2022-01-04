@@ -1,3 +1,1 @@
-# jewellscott.github.io
-
-## Coming soon...
+# soon!
